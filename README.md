@@ -1,4 +1,4 @@
-<div align="center"><img width="200" alt="Vintage_medical_art_aesthetic___Medicine_poster_aesthetic__Medicine_vintage_aesthetic__Heart_brain-removebg-preview" src="https://github.com/user-attachments/assets/7b9c147f-e3b5-4a55-b9c3-fa9763d07759"></div>
+<div align="center"><img width="150" alt="Vintage_medical_art_aesthetic___Medicine_poster_aesthetic__Medicine_vintage_aesthetic__Heart_brain-removebg-preview" src="https://github.com/user-attachments/assets/7b9c147f-e3b5-4a55-b9c3-fa9763d07759"></div>
 <div align="center">𝙷𝚘𝚠 𝚝𝚘 𝙲𝚊𝚛𝚎 𝚏𝚘𝚛 𝚝𝚑𝚎 𝙸𝚗𝚜𝚊𝚗𝚎</div>
 
 

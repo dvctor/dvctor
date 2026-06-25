@@ -1,4 +1,6 @@
-## Hi there 👋
+<div align="center"><img width="300" alt="Vintage_medical_art_aesthetic___Medicine_poster_aesthetic__Medicine_vintage_aesthetic__Heart_brain-removebg-preview" src="https://github.com/user-attachments/assets/7b9c147f-e3b5-4a55-b9c3-fa9763d07759"></div>
+
+
 
 <!--
 **dvctor/dvctor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

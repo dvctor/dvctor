@@ -8,6 +8,12 @@
 
 # <div align="center">ℑ, 𝔞𝔩𝔬𝔫𝔢, 𝔞𝔪 𝔞 𝔡𝔞𝔯𝔨 𝔰𝔱𝔬𝔯𝔶.</div>
 
+<img width="2048" alt="image" src="https://github.com/user-attachments/assets/5523af9d-660e-43cc-9283-561438a41f3e" />
+<img width="1000" alt="download (1)" src="https://github.com/user-attachments/assets/7abee864-4839-4537-a044-66690e01b054" />
+<img width="2048" alt="image" src="https://github.com/user-attachments/assets/2d882584-60c8-409f-a2ce-0ad601c607e9" />
+
+
+
 
 
 <!--

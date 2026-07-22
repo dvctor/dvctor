@@ -12,11 +12,31 @@
 <img width="1000" alt="download (1)" src="https://github.com/user-attachments/assets/7abee864-4839-4537-a044-66690e01b054" />
 <img width="2048" alt="image" src="https://github.com/user-attachments/assets/2d882584-60c8-409f-a2ce-0ad601c607e9" />
 
-# <div align="center">𝔄𝔰 𝔄𝔟𝔬𝔳𝔢, 𝔖𝔬 𝔅𝔢𝔩𝔬𝔴</div>
+<img width="1000" alt="filigree-removebg-preview (1)" src="https://github.com/user-attachments/assets/32f3812c-dae1-4169-8dd9-f74e3fd8d60e" />
 
-<img width="2007" alt="image" src="https://github.com/user-attachments/assets/e9748a0b-71b0-4784-80ad-0a38d0ce3101" />
-<img width="1000" alt="14" src="https://github.com/user-attachments/assets/b7355dd9-b457-4704-996e-006f0e0d5253" />
-<img width="2007" alt="image" src="https://github.com/user-attachments/assets/e9748a0b-71b0-4784-80ad-0a38d0ce3101" />
+<img align="left" width="400" src="https://github.com/user-attachments/assets/b81adf20-65e5-4e59-be04-556488f86328">
+
+<div align="center">
+  
+  ### 𝔖𝔥𝔦𝔭𝔰 𝔰𝔞𝔦𝔩𝔬𝔯𝔩𝔢𝔰𝔰 𝔩𝔞𝔶 𝔯𝔬𝔱𝔱𝔦𝔫𝔤 𝔬𝔫 𝔱𝔥𝔢 𝔰𝔢𝔞,
+  
+  ### 𝔄𝔫𝔡 𝔱𝔥𝔢𝔦𝔯 𝔪𝔞𝔰𝔱𝔰 𝔣𝔢𝔩𝔩 𝔡𝔬𝔴𝔫 𝔭𝔦𝔢𝔠𝔢𝔪𝔢𝔞𝔩: 𝔞𝔰 𝔱𝔥𝔢𝔶 𝔡𝔯𝔬𝔭𝔭'𝔡
+  
+  ### 𝔗𝔥𝔢𝔶 𝔰𝔩𝔢𝔭𝔱 𝔬𝔫 𝔱𝔥𝔢 𝔞𝔟𝔶𝔰𝔰 𝔴𝔦𝔱𝔥𝔬𝔲𝔱 𝔞 𝔰𝔲𝔯𝔤𝔢—
+  
+  ### 𝔗𝔥𝔢 𝔴𝔞𝔳𝔢𝔰 𝔴𝔢𝔯𝔢 𝔡𝔢𝔞𝔡; 𝔱𝔥𝔢 𝔱𝔦𝔡𝔢𝔰 𝔴𝔢𝔯𝔢 𝔦𝔫 𝔱𝔥𝔢𝔦𝔯 𝔤𝔯𝔞𝔳𝔢,
+  
+  ### 𝔗𝔥𝔢 𝔪𝔬𝔬𝔫, 𝔱𝔥𝔢𝔦𝔯 𝔪𝔦𝔰𝔱𝔯𝔢𝔰𝔰, 𝔥𝔞𝔡 𝔢𝔵𝔭𝔦𝔯'𝔡 𝔟𝔢𝔣𝔬𝔯𝔢;
+  
+  ### 𝔗𝔥𝔢 𝔴𝔦𝔫𝔡𝔰 𝔴𝔢𝔯𝔢 𝔴𝔦𝔱𝔥𝔢𝔯'𝔡 𝔦𝔫 𝔱𝔥𝔢 𝔰𝔱𝔞𝔤𝔫𝔞𝔫𝔱 𝔞𝔦𝔯,
+  
+  ### 𝔄𝔫𝔡 𝔱𝔥𝔢 𝔠𝔩𝔬𝔲𝔡𝔰 𝔭𝔢𝔯𝔦𝔰𝔥'𝔡; 𝔇𝔞𝔯𝔨𝔫𝔢𝔰𝔰 𝔥𝔞𝔡 𝔫𝔬 𝔫𝔢𝔢𝔡
+  
+  ### 𝔒𝔣 𝔞𝔦𝔡 𝔣𝔯𝔬𝔪 𝔱𝔥𝔢𝔪—𝔖𝔥𝔢 𝔴𝔞𝔰 𝔱𝔥𝔢 𝔘𝔫𝔦𝔳𝔢𝔯𝔰𝔢.
+  
+</div>
+
+<br clear="left"/>
 
 
 <!--

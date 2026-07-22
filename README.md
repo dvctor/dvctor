@@ -38,6 +38,41 @@
 
 <br clear="left"/>
 
+<img width="2038" alt="image" src="https://github.com/user-attachments/assets/a8288c90-8fc4-4ff6-bb0c-f1ecbef128c7" />
+<img width="1000" alt="download (2)" src="https://github.com/user-attachments/assets/7f8e3b69-e9b9-4245-8a67-c63121456259" />
+<img width="2038" alt="image" src="https://github.com/user-attachments/assets/a8288c90-8fc4-4ff6-bb0c-f1ecbef128c7" />
+
+# <div align="center">ℑ 𝔞𝔪 𝔟𝔬𝔱𝔥 𝔴𝔬𝔲𝔫𝔡 𝔞𝔫𝔡 𝔨𝔫𝔦𝔣𝔢.</div>
+
+<img width="2007" alt="image" src="https://github.com/user-attachments/assets/317815ea-bbee-4080-a11b-fb98b8ff4440" />
+<img width="1000" alt="14" src="https://github.com/user-attachments/assets/378594b0-61f1-4d01-b9ba-44b21ffab9b8" />
+<img width="2007" alt="image" src="https://github.com/user-attachments/assets/317815ea-bbee-4080-a11b-fb98b8ff4440" />
+
+<img width="1000" alt="Lucifer_s_Bride__Complete_-removebg-preview" src="https://github.com/user-attachments/assets/8f35f008-2cf0-4de8-be86-5580f390d1d3" />
+
+<img align="right" width="300" src="https://github.com/user-attachments/assets/61345b8f-9adc-48c3-b144-098ed93a5a6d">
+
+# 𝔐𝔢𝔪𝔢𝔫𝔱𝔬 𝔐𝔬𝔯𝔦 — “ℜ𝔢𝔪𝔢𝔪𝔟𝔢𝔯 𝔱𝔬 𝔡𝔦𝔢”
+
+## &nbsp;&nbsp;&nbsp;&nbsp; 𝔄𝔫 𝔞𝔯𝔱𝔦𝔰𝔱𝔦𝔠 𝔰𝔶𝔪𝔟𝔬𝔩 𝔬𝔯 𝔱𝔯𝔬𝔭𝔢 𝔞𝔠𝔱𝔦𝔫𝔤 𝔞𝔰 𝔞 𝔯𝔢𝔪𝔦𝔫𝔡𝔢𝔯 𝔬𝔣 𝔱𝔥𝔢 𝔦𝔫𝔢𝔳𝔦𝔱𝔞𝔟𝔦𝔩𝔦𝔱𝔶 𝔬𝔣 𝔡𝔢𝔞𝔱𝔥.
+
+## ℑ𝔱𝔰 𝔪𝔬𝔰𝔱 𝔠𝔬𝔪𝔪𝔬𝔫 𝔪𝔬𝔱𝔦𝔣 𝔦𝔰 𝔞 𝔰𝔨𝔲𝔩𝔩, 𝔬𝔣𝔱𝔢𝔫 𝔞𝔠𝔠𝔬𝔪𝔭𝔞𝔫𝔦𝔢𝔡 𝔟𝔶 𝔟𝔬𝔫𝔢𝔰.
+
+## 𝔒𝔣𝔱𝔢𝔫, 𝔱𝔥𝔦𝔰 𝔞𝔩𝔬𝔫𝔢 𝔦𝔰 𝔢𝔫𝔬𝔲𝔤𝔥 𝔱𝔬 𝔢𝔳𝔬𝔨𝔢 𝔱𝔥𝔢 𝔱𝔯𝔬𝔭𝔢, 𝔟𝔲𝔱 𝔬𝔱𝔥𝔢𝔯 𝔪𝔬𝔱𝔦𝔣𝔰 𝔦𝔫𝔠𝔩𝔲𝔡𝔢 𝔞 𝔠𝔬𝔣𝔣𝔦𝔫, 𝔥𝔬𝔲𝔯𝔤𝔩𝔞𝔰𝔰, 𝔬𝔯 𝔴𝔦𝔩𝔱𝔦𝔫𝔤 𝔣𝔩𝔬𝔴𝔢𝔯𝔰 𝔱𝔬 𝔰𝔦𝔤𝔫𝔦𝔣𝔶 𝔱𝔥𝔢 𝔦𝔪𝔭𝔢𝔯𝔪𝔞𝔫𝔢𝔫𝔠𝔢 𝔬𝔣 𝔩𝔦𝔣𝔢.
+
+<br clear="left"/>
+
+<img width="1000" alt="download__6_-removebg-preview (1)" src="https://github.com/user-attachments/assets/141af421-b581-4292-a557-5578c3420b0c" />
+
+<p align="center">
+  <img width="600" src="https://github.com/user-attachments/assets/4e2e3fc8-3556-4a3e-9155-c99846db2620" alt="image">
+  <img width="200" src="https://github.com/user-attachments/assets/dbd54f41-4780-4585-a4db-92de965f2953">
+</p>
+
+<img width="1000" alt="5d69cb55-47aa-478e-8223-e70b22605a04-removebg-preview" src="https://github.com/user-attachments/assets/d6968fa4-8917-4f29-941f-c030b122315b" />
+
+
+
 
 <!--
 **dvctor/dvctor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

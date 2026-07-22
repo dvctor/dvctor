@@ -1,9 +1,10 @@
-<img width="1000" alt="filigree-removebg-preview" src="https://github.com/user-attachments/assets/cdd92ba4-26d2-433a-97d6-0ffb57d7e696" />
+<img width="1000" alt="filigree-removebg-preview" src="https://github.com/user-attachments/assets/c60c1082-c2a6-4385-aa4e-7d8e2025b32d" />
 
 
 # <div align="center">ℑ 𝔞𝔪 𝔱𝔥𝔢 𝔰𝔭𝔦𝔯𝔦𝔱 𝔬𝔣 𝔯𝔬𝔪𝔞𝔫𝔱𝔦𝔠 𝔞𝔡𝔳𝔢𝔫𝔱𝔲𝔯𝔢.</div>
-<img width="2048" alt="image" src="https://github.com/user-attachments/assets/da2635f2-5c0a-4820-9487-d2d94fdc8355" />
+<img width="2038" alt="image" src="https://github.com/user-attachments/assets/ccd68300-f225-45a6-aed9-b4b0d6afec7b" />
 <img width="1000" alt="@yuwoij" src="https://github.com/user-attachments/assets/7e4874e2-470e-413b-9222-0a1bb31f4b61" />
+<img width="2038" alt="image" src="https://github.com/user-attachments/assets/ccd68300-f225-45a6-aed9-b4b0d6afec7b" />
 
 # <div align="center">ℑ, 𝔞𝔩𝔬𝔫𝔢, 𝔞𝔪 𝔞 𝔡𝔞𝔯𝔨 𝔰𝔱𝔬𝔯𝔶.</div>
 

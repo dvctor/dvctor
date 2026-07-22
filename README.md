@@ -62,6 +62,10 @@
 
 <br clear="left"/>
 
+<p align="center">
+<img width="120" src="https://github.com/user-attachments/assets/d3d0f65d-7dae-4c54-9ee3-85e016d26a1e">
+</p>
+
 <img width="1000" alt="download__6_-removebg-preview (1)" src="https://github.com/user-attachments/assets/141af421-b581-4292-a557-5578c3420b0c" />
 
 <p align="center">

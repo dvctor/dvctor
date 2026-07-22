@@ -1,5 +1,4 @@
-<div align="center"><img width="200" alt="__will_graham-removebg-preview" src="https://github.com/user-attachments/assets/92871e09-dbc3-4b08-80ac-446e17b7f2b4"></div>
-<div align="center">𝙷𝚘𝚠 𝚝𝚘 𝙲𝚊𝚛𝚎 𝚏𝚘𝚛 𝚝𝚑𝚎 𝙸𝚗𝚜𝚊𝚗𝚎</div>
+# <div align="center">ℑ, 𝔞𝔩𝔬𝔫𝔢, 𝔞𝔪 𝔞 𝔡𝔞𝔯𝔨 𝔰𝔱𝔬𝔯𝔶.</div>
 
 
 
